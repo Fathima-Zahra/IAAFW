@@ -16,9 +16,9 @@ Food Waste
 🍪 Food waste also has a staggering price tag, costing this country approximately $218 billion per year.                                                              
 🧇 Uneaten food also puts unneeded strain on the environment by wasting valuable resources like water and farmland.                                                
 
-                                                                                                                                     
+                                                                                                                                       
 ‧-₊˚๑꒰-✦-Why this Project ??? -ෆ-₊˚                                                                                                          
-🥯・꒰To Sum up ways to prevent Food Waste꒱´ˎ˗
+🥯・꒰To Sum up ways to prevent Food Waste꒱´ˎ˗                                                                                    
 🍞・꒰To Provide Insights on How agriculture is important for us꒱´ˎ˗                                                                                            
 
 ꒦꒷︶︶꒷꒦︶︶︶꒷꒦꒷︶︶꒷꒦                                                                                                                   
