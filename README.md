@@ -30,7 +30,8 @@ Project Made By:
                        
 ・꒦-₊˚ɞ-Mayank-꒱                                                                                                                                    
 🌙 Github : https://github.com/Mayank-Coder12                                                                          
-🌙 Codepen : https://codepen.io/Mayank0707                                                                                                                                                          
+🌙 Codepen : https://codepen.io/Mayank0707                                                                                                                                                                                                                                                              
+                                                                                           
 ・꒦-₊˚ɞ-Aarya D-꒱                                                                                                                                    
 🌙 Github : https://github.com/Aarya-D                                                                          
 🌙 Codepen : https://codepen.io/Adahshdh                                                                          
